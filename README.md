@@ -6,3 +6,6 @@
 - 📫 How to reach me: twitter.com/vincentntang
 - ⚡ Fun fact: Formerly a kitchen designer
 
+Follow me:
+
+- [newsletter](https://tinyletter.com/vincentntang)
